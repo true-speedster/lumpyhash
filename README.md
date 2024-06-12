@@ -19,15 +19,12 @@ general pt info ^_^
 
 
 
-
-
-
 DNI: proships, any people who joke about really serious topics, people who copy skins and etc.
 
 
 <img src="https://external-media.spacehey.net/media/sOAa494Fol21cuIjL_-gvFzWQhg0tkU8EoKlrRU4bcfI=/https://plasticdino.neocities.org/buttons/2020SUCKS.png"/><img src="https://external-media.spacehey.net/media/sRr-fSUbGHA7SODpLVVamg61KIDeYcf-5GYBSToqq3cw=/https://64.media.tumblr.com/9095e721f9daf174834daafe7353841b/f01e93489764b673-f8/s100x200/f15977ca888a515ff3e87d810bd88f6f5c72f3b2.gif"/>
 
-INT: HS/TF2 or generally nice people!! :D, ( dave and bambi / dfac pls interact pls pls pls,,,)
+INT: HS/TF2(or TC2)/G&B or generally nice people!! :D, ( dave and bambi / dfac pls interact pls pls pls,,,)
 
 
 
@@ -52,4 +49,4 @@ ps dont view my spacehey its going through something >_> though do check my stra
 
 
 
-also you call cuddle or hide with me !!! whisper me tew interact though cause i dont pay attention much,,, thanks!!! 
+also you call cuddle or hide with me !!! whisper me tew interact though cause i dont pay attention much,,, thanks!!!         
