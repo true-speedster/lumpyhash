@@ -24,7 +24,7 @@ DNI: proships, any people who joke about really serious topics, people who copy 
 
 <img src="https://external-media.spacehey.net/media/sOAa494Fol21cuIjL_-gvFzWQhg0tkU8EoKlrRU4bcfI=/https://plasticdino.neocities.org/buttons/2020SUCKS.png"/><img src="https://external-media.spacehey.net/media/sRr-fSUbGHA7SODpLVVamg61KIDeYcf-5GYBSToqq3cw=/https://64.media.tumblr.com/9095e721f9daf174834daafe7353841b/f01e93489764b673-f8/s100x200/f15977ca888a515ff3e87d810bd88f6f5c72f3b2.gif"/>
 
-INT: HS/TF2(or TC2)/G&B or generally nice people!! :D, ( dave and bambi / dfac pls interact pls pls pls,,,)
+INT: HS/TF2(or TC2)/G&B/LNJ or generally nice people!! :D, ( dave and bambi / dfac pls interact pls pls pls,,,)
 
 
 
@@ -39,7 +39,7 @@ INT: HS/TF2(or TC2)/G&B or generally nice people!! :D, ( dave and bambi / dfac p
 
 
 
-likes or something i do for funsies, I DIG MARINE LIFE and shooter games!! my favorite colors are orange and green and i can bathe in mangos and cats for life,,, btw i suck at comforting people so please don't come to me for advice!!! but i will be a listening ear for anyone!! :D 
+likes or something i do for funsies, I DIG MARINE LIFE and shooter games!! my favorite colors are orange and green and i can bathe in mangos and cats for life,,, btw i suck at comforting people so please don't come to me for advice!!! but i will be a listening ear for anyone!! :D,, no1 lvr of zee!!!!morro and lloyd!! (lnj)
 
 <img src="https://y2k.neocities.org/stamps2/__fuck______by_unicorn_gal-dbzcf9e.png"/> <img src="https://64.media.tumblr.com/789e59a1f404a9a45e53def0e3e4c812/tumblr_prpuf8ZotA1xzybrpo1_100.gifv"/>
 
