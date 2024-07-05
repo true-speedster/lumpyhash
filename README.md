@@ -39,7 +39,7 @@ INT: HS/TF2(or TC2)/G&B/LNJ or generally nice people!! :D, ( dave and bambi / df
 
 
 
-likes or something i do for funsies, I DIG MARINE LIFE and shooter games!! my favorite colors are orange and green and i can bathe in mangos and cats for life,,, btw i suck at comforting people so please don't come to me for advice!!! but i will be a listening ear for anyone!! :D,, no1 lvr of zee!!!!morro and lloyd!! (lnj)
+likes or something i do for funsies, I DIG MARINE LIFE and shooter games!! my favorite colors are orange and green and i can bathe in mangos and cats for life,,, btw i suck at comforting people so please don't come to me for advice!!! but i will be a listening ear for anyone!! :D,, no1 lvr of zee!!!!morro and lloyd!! (lnj) and,, murrit turkin,,,
 
 <img src="https://y2k.neocities.org/stamps2/__fuck______by_unicorn_gal-dbzcf9e.png"/> <img src="https://64.media.tumblr.com/789e59a1f404a9a45e53def0e3e4c812/tumblr_prpuf8ZotA1xzybrpo1_100.gifv"/>
 
