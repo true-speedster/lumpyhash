@@ -1,1 +1,2 @@
-grr rmking sad feacceee
+lalallalla!!!
+disc : chaos.controlled , !!! ill talk to anyone !
